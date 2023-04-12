@@ -48,3 +48,4 @@ Live Link : https://job-bazaar-by-jubair.netlify.app/
 
 - Go check it out the here this link :
 - Give me a some feedback
+- Have fun Chilll Yoooooo
